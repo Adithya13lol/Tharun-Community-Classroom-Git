@@ -1,5 +1,4 @@
 
-Tharun Adithya says that this community is fucked up.
-You're gonna be amazing!
+Tharun Adithya says that this community is amazing.
 Keep trying harder!!
 
