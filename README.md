@@ -1,1 +1,2 @@
-Youre gonna be amazing.!1
+You're gonna be amazing!
+Keep trying harder!!
